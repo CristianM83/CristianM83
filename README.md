@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CristianM83
-- 👀 I’m interested in: Industrial Design, 3D Printing, CNC machines, CAD modeling , electronics and mechanicals projects, photography in general and astrophotography in particular.
+- 👀 I’m interested in: Industrial Design, 3D Printing, CNC machines, CAD modeling , electronics and mechanicals projects, Electric Vehicles, photography in general and astrophotography in particular.
 - 🌱 I’m always working and learning about those topics.
 - 💞️ I’m open to collaborate on almost anything.
 - 📫 Reach me on Ig: @espitiru_maker.
